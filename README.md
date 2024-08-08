@@ -1,1 +1,0 @@
-# Stanlyi27anm
